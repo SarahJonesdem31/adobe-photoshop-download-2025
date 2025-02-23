@@ -1,0 +1,1 @@
+# adobe-photoshop-download-2025
